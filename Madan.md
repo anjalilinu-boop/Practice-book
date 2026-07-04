@@ -12,11 +12,11 @@ for Business Analysis and help me to learn and grow through various opportunitie
 
 •	Possess excellent interpersonal skills, effective verbal communication.
 
-•	High degree of confidentiality and maturity to handle matters with discretion
+•	High degree of confidentiality and maturity to handle matters with discretion.
 
-•	Hard working, pro-efficient and capable of achieving work results
+•	Hard working, pro-efficient and capable of achieving work results.
 
-•	Have a “Can Do” attitude
+•	Have a “Can Do” attitude!!
 
 ## Skills:
 
@@ -28,7 +28,7 @@ for Business Analysis and help me to learn and grow through various opportunitie
 
 •	Banking Operations.
 
-•	Gap Analysis.
+•	Gap Analysis. Acounting mastery.
 
 
 
