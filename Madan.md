@@ -20,15 +20,15 @@ for Business Analysis and help me to learn and grow through various opportunitie
 
 ## Skills:
 
-•	Banking and Finance
+•	Banking and Finance.
 
-•	Retail Banking
+•	Retail Banking.
 
-•	Requirement Gathering
+•	Requirement Gathering.
 
-•	Banking Operations
+•	Banking Operations.
 
-•	Gap Analysis
+•	Gap Analysis.
 
 
 
