@@ -2,9 +2,9 @@
 
 To play a significant role in an innovative and progressive organization where my experience in Business Analysis,
 
-strategic Planning and my expertise in BFSI Domain can be put effective 
+strategic Planning and my expertise in BFSI Domain can be put effective- 
 
-for Business Analysis and help me to learn and grow through various opportunities.
+-for Business Analysis and help me to learn and grow through various opportunities.
 
 ## Core Competency:
 
@@ -16,7 +16,8 @@ for Business Analysis and help me to learn and grow through various opportunitie
 
 •	Hard working, pro-efficient and capable of achieving work results.
 
-•	Have a “Can Do” attitude!!
+•	Have a “Can Do” attitude.
+
 
 ## Skills:
 
@@ -28,7 +29,7 @@ for Business Analysis and help me to learn and grow through various opportunitie
 
 •	Banking Operations.
 
-•	Gap Analysis. Acounting mastery.
+•	Gap Analysis!! Acounting mastery.
 
 
 
