@@ -21,13 +21,13 @@ strategic Planning and my expertise in BFSI Domain can be put effective-
 
 ## Skills:
 
-•	Banking and Finance.
+•	Banking and Finance.Gap Analysis!! Acounting mastery.
 
-•	Retail Banking.
+•	Retail Banking.Gap Analysis!! Acounting mastery.
 
-•	Requirement Gathering.
+•	Requirement Gathering.Gap Analysis!! Acounting mastery.
 
-•	Banking Operations.
+•	Banking Operations.Gap Analysis!! Acounting mastery.
 
 •	Gap Analysis!! Acounting mastery.
 
