@@ -12,11 +12,6 @@ strategic Planning and my expertise in BFSI Domain can be put effective-
 
 •	Possess excellent interpersonal skills, effective verbal communication.
 
-•	High degree of confidentiality and maturity to handle matters with discretion.
-
-•	Hard working, pro-efficient and capable of achieving work results.
-
-•	Have a “Can Do” attitude.
 
 
 ## Skills:
@@ -30,6 +25,8 @@ strategic Planning and my expertise in BFSI Domain can be put effective-
 •	Banking Operations.Gap Analysis!! Acounting mastery.
 
 •	Gap Analysis!! Acounting mastery.
+
+ 
 
 
 
