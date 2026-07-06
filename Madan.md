@@ -16,6 +16,7 @@ strategic Planning and my expertise in BFSI Domain can be put effective-
 
 ## Skills:
 
+
 •	Banking and Finance.
 
 •	Retail Banking.
